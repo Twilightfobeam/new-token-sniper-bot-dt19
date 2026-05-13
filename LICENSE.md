@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with premium Scanner for new token sniper bot | new-token-detection & arbitrage-opportunities, the #1 new token sniper bot. Includes new-token-detection and
 
 
 
